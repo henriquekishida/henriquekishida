@@ -21,7 +21,7 @@
 </ul>
 
 <p>
-  Brazilian Portuguese native speaker; Fluent English; Intermediate Spanish; Basic Japanese.  
+  Brazilian Portuguese native speaker; Fluent English; Intermediate Spanish and Japanese.  
 </p>
 
 <br/>
